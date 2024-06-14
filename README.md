@@ -6,6 +6,5 @@ If you're here because of [Xiana](https://xiana.cc) that's great! As of writing 
 
 If you'd like my personal website you can find me [here](https://osa-is.online)
 
-Best regards and thanks for reading
-
+Best regards and thanks for reading,
 Osa
